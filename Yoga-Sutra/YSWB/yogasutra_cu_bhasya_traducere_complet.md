@@ -48,7 +48,7 @@
 
 **Mijloacele cunoașterii valide sunt percepția directă, inferența și mărturia autorizată.**
 
-**Bhāṣya:** Percepția apare când mintea, prin canalele simțurilor, ia culoarea obiectului și fixează particularul. Inerența stabilește o legătură generală: de pildă, din mișcarea aparentă a lunii și stelelor deducem deplasarea lor, ori din neajungerea la un loc deducem lipsa mișcării. Mărturia autentică este cuvântul celui care a văzut sau a înțeles corect realitatea și o transmite altuia; dacă vorbitorul nu are o cunoaștere reală, autoritatea lui e nesigură.
+**Bhāṣya:** Percepția apare când mintea, prin canalele simțurilor, ia culoarea obiectului și fixează particularul. Inferența stabilește o legătură generală: de pildă, din mișcarea aparentă a lunii și stelelor deducem deplasarea lor, ori din neajungerea la un loc deducem lipsa mișcării. Mărturia autentică este cuvântul celui care a văzut sau a înțeles corect realitatea și o transmite altuia; dacă vorbitorul nu are o cunoaștere reală, autoritatea lui e nesigură.
 
 ### **YS 1.8 — viparyayo mithyājñānam atadrūpapratiṣṭham**
 
